@@ -1,4 +1,4 @@
-# Hi there, I'm Seth Wood 👋
+# Hi there, I'm Seth 👋
 
 ## About Me
 
